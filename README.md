@@ -21,7 +21,6 @@
 - 📫 How to reach me:
 - Email: ntshepisengmacuphe@gmail.com
 - LinkedIn: [Nthsepiseng Macuphe](https://www.linkedin.com/in/ntshepiseng-macuphe-1b083034a)
-- 😄 Pronouns: She/Her
 - 
 - ⚡ Fun fact:
 -🚀📚 I enjoy building things that challenge me and keep me learning every day.
